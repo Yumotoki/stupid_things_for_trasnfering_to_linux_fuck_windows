@@ -1,0 +1,1 @@
+# stupid_things_for_trasnfering_to_linux_fuck_windows
